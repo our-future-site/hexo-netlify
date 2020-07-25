@@ -18,6 +18,6 @@ comments: true
 
 ### 知乎同窗趣评人事变动
 原回答：[匿名的回答](https://www.zhihu.com/question/409119780/answer/1360653838)
-[![https://s1.ax1x.com/2020/07/26/aSxhCt.jpg](https://s1.ax1x.com/2020/07/26/aSxhCt.jpg)
+[https://s1.ax1x.com/2020/07/26/aSxhCt.jpg](https://s1.ax1x.com/2020/07/26/aSxhCt.jpg)
 
 
