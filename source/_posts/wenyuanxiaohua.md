@@ -1,8 +1,9 @@
 ---
 title: 祠堂的废墟
-date: ""
-updated: ""
-comments: true 
+date: 2020-07-25 00:00:00
+updated: 2020-07-26 00:17:00
+permalink: wyjokes
+comments: true
 ---
 注：本文更新中；接受[投稿](https://workspace.jianguoyun.com/inbox/collect/4c9cdd43b70b402198324669844195ce/submit)。
 
