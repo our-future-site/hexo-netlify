@@ -17,7 +17,7 @@ comments: true
 [![Uzko2n.jpg](https://s1.ax1x.com/2020/07/25/Uzko2n.jpg)](https://imgchr.com/i/Uzko2n)
 
 ### 知乎同窗趣评人事变动
-原回答：[网友“feehink”的回答](https://www.zhihu.com/question/409119780/answer/1360653838)
-[![aSDXEq.jpg](https://s1.ax1x.com/2020/07/25/aSDXEq.jpg)](https://s1.ax1x.com/2020/07/25/aSDXEq.jpg)
+原回答：[匿名的回答](https://www.zhihu.com/question/409119780/answer/1360653838)
+[![https://s1.ax1x.com/2020/07/26/aSxhCt.jpg](https://s1.ax1x.com/2020/07/26/aSxhCt.jpg)
 
 
