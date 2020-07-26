@@ -5,7 +5,7 @@ updated: ""
 comments: true 
 ---
 注：本文更新中；接受[投稿](https://workspace.jianguoyun.com/inbox/collect/4c9cdd43b70b402198324669844195ce/submit)。
-
+如有删除、打码、取消链接的请求请致信电邮：info@our-future.site。
 > 是不是，文园大佬们带有风骨的创意，总是能在想不到的地方发散出光辉。
 我喜欢这种灾难中的艺术，就像戴着镣铐的起舞、遍体鳞伤的高歌。
 
