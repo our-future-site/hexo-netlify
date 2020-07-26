@@ -20,4 +20,10 @@ comments: true
 原回答：[匿名的回答](https://www.zhihu.com/question/409119780/answer/1360653838)
 ![aSxhCt.jpg](https://s1.ax1x.com/2020/07/26/aSxhCt.jpg)
 
+### 校友仗义执言！__校杜绝高考唯分数论
+> 小编欲言又止……
+嗯，或许我们考得很好，只是体现出来的成绩不好。
 
+出处：QQ空间转发
+![a9SKv6.jpg](https://s1.ax1x.com/2020/07/26/a9SKv6.jpg)
+![a9Sugx.jpg](https://s1.ax1x.com/2020/07/26/a9Sugx.jpg)
