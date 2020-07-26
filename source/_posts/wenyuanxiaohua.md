@@ -25,5 +25,5 @@ comments: true
 嗯，或许我们考得很好，只是体现出来的成绩不好。
 
 出处：QQ空间转发
-![a9SKv6.jpg](https://s1.ax1x.com/2020/07/26/a9SKv6.jpg)
+[![a9p8yV.png](https://s1.ax1x.com/2020/07/26/a9p8yV.png)](https://imgchr.com/i/a9p8yV)
 ![a9Sugx.jpg](https://s1.ax1x.com/2020/07/26/a9Sugx.jpg)
