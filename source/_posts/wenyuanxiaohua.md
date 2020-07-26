@@ -27,3 +27,7 @@ comments: true
 出处：QQ空间转发
 [![a9p8yV.png](https://s1.ax1x.com/2020/07/26/a9p8yV.png)](https://imgchr.com/i/a9p8yV)
 ![a9Sugx.jpg](https://s1.ax1x.com/2020/07/26/a9Sugx.jpg)
+
+### 打脸！系列数据证明强校实力
+原回答：[匿名的回答](https://www.zhihu.com/question/409119780/answer/1362109070)
+[![a993hd.jpg](https://s1.ax1x.com/2020/07/26/a993hd.jpg)](https://imgchr.com/i/a993hd)
